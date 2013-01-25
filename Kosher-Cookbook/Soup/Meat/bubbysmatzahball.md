@@ -1,3 +1,9 @@
+Matzah Ball Soup
+================
+
+Ingredients
+============
+
 4 extra-large eggs, separated
 1/2 cup good chicken stock
 1/4 cup chicken fat, melted (skim this from the top of the homemade soup)
